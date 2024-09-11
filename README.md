@@ -1,4 +1,4 @@
-<a href="https://drive.google.com/file/d/1xovWcAFnEUx9MnpBsuJ3hbWY49i6r2rO/view?usp=sharing">😸 Solved.ac_바로가기</a><br><br> 
+<a href="https://solved.ac/profile/suwon3274">😸 Solved.ac_바로가기</a><br><br> 
 <a href="https://drive.google.com/file/d/1xovWcAFnEUx9MnpBsuJ3hbWY49i6r2rO/view?usp=sharing">📑 이력서/포트폴리오_바로가기</a><br><br> 
 
 <!--
