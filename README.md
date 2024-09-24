@@ -1,5 +1,5 @@
 <a href="https://solved.ac/profile/suwon3274">😸 Solved.ac_바로가기</a><br><br> 
-<a href="https://drive.google.com/file/d/1xovWcAFnEUx9MnpBsuJ3hbWY49i6r2rO/view?usp=sharing">📑 이력서/포트폴리오_바로가기</a><br><br> 
+<a href="https://drive.google.com/file/d/1XyaNZZ3wvgcksym30GHN7NoRP5k1KIpf/view?usp=sharing">📑 이력서/포트폴리오_바로가기</a><br><br> 
 
 <!--
 **suw0n/suw0n** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
