@@ -1,4 +1,4 @@
-<a href="https://drive.google.com/file/d/1uqNz3bLcHoXylKRdGnrBtT3fHxP6UMNo/view?usp=sharing">📑 my_resume</a><br><br> 
+<a href="https://drive.google.com/file/d/1RyYi76psYhtQ62F4IOHYl5xajWPSr4eX/view?usp=sharing">📑 my_resume</a><br><br> 
 <a href="https://solved.ac/profile/suwon3274">😸 my_solved.ac_profile</a><br><br> 
 
 <!--
